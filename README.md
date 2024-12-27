@@ -1,1 +1,1 @@
-# [The Resolt](https://harel-k.github.io/My-To-Do-List-personal/)
+# [My To-Do list](https://harel-k.github.io/My-To-Do-List-personal/)
